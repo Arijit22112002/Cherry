@@ -1,2 +1,2 @@
-## I have uploaded all my Personal Projects here for Display & reference for anyone On or Off GitHub. 
-## Please make use of my projects and resources properly as per your needs or requirements. 
+## I have uploaded all my Projects here for display & reference for anyone on or off GitHub. 
+## Please make use of my projects and resources properly according to your needs or requirements. 
